@@ -1,2 +1,0 @@
-# ACTIVIDAD1GITHUB
-olaAndrei
